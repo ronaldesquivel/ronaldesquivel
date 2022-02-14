@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Ronald Esquivel Lopez, from Costa Rica.
+- 🐐 Internship - Backcountry
